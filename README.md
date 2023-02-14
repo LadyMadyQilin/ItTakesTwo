@@ -13,3 +13,6 @@ The game is about love and the challenges of a relationship and it’s a great b
 Throughout your journey with Max and Cody, you’ll stumble upon tambourines with purple streamers hanging off of them. You’ll likely hear these tambourine drums before you see them and when you do, follow the sound: it leads to one of the game’s 25 minigames. These minigames are purely for fun and a great way for you and your Player 2 to take a break after a stressful puzzle in the level.
 
 ![ItTakesTwo](img/ItTakesTwo-logo.jpg)
+
+It Takes Two - [for more information](https://www.ign.com/wikis/it-takes-two/)
+
