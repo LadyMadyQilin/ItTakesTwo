@@ -16,3 +16,4 @@ Throughout your journey with Max and Cody, you’ll stumble upon tambourines wit
 
 It Takes Two - [for more information](https://www.ign.com/wikis/it-takes-two/)
 
+>_*TOGETHER WE MAKE THIS WORLD A BETTER PLACE*_ 
